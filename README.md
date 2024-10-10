@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Cubes
 I play in a band as a guitarist<br>Likes to draw <br>Loves to skate<br>A writer<br>Inspired Programmer
 
 
